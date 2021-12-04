@@ -25,7 +25,7 @@ Instagram：[@akiakutaji](https://www.instagram.com/akiakutaji/)
 
 Steam: [414784280](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
 
-Switch：SW-1444-6487-3118 （联机的目前只玩过动森，其他单机爱好总是在变，目前在玩塞尔达和一些乙游）
+Switch：SW-1444-6487-3118
 
 Pixiv：[12547188](https://www.pixiv.net/users/12547188)（画画真的是纯纯纯纯业余爱好，平时练习的也不多，所以真的画的不太好，但是有时候心血来潮又喜欢瞎画这样qwq）
 
@@ -35,21 +35,36 @@ Pixiv：[12547188](https://www.pixiv.net/users/12547188)（画画真的是纯纯
 
 我玩游戏很杂，而且都是周期性的，一周沉迷一个这样，且都挺菜的（
 
-#### 现在在玩的：
-- FF14 陆行鸟 暗影群岛：三次入坑又弃坑，最近又开始断断续续继续跑主线...
-- 最近沉迷单机游戏，包括但不限于：[塞尔达](https://weibo.com/1928723543/4702725642127219)、[虔诚之花的晚钟](https://weibo.com/1928723543/4704852356108010)、极乐迪斯科
+#### Switch：
+- [塞尔达](https://weibo.com/1928723543/4702725642127219) （已通关+全神庙解锁）
+- [虔诚之花的晚钟](https://weibo.com/1928723543/L4wCKlVGb)（Playing。Orlok我的宝贝5555！）
+- [项圈X恶意](https://weibo.com/1928723543/L4atpoqwV)（Playing）
+- [符文工房4](https://weibo.com/1928723543/JwdnIe1xr)（好像是打到第三章然后弃了...）
 
-#### 以前沉迷过现在已经不怎么玩了的（但是以后可能会继续玩）：
-- 百闻牌：[秋秋芥子](https://weibo.com/1928723543/4674477629116636)（疫情期间最爱的游戏之一，每天疯狂上分，后来退坑了又回坑，打了两次[比赛](https://weibo.com/1928723543/4662840714070983)然后又退坑了QAQ）
-- PCR国服：[Akiko](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5uUyO79EleW56*nHziOXZhcHijh2*3RXlU9erLNQcS7PsGL8gCPRotkfscD1sFfw0mnxY5wiFo6g25hNWYjv5FU!/b&ek=1&kp=1&pt=0&bo=gwc4BAAAAAADZ*o!&tl=1&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4) （号给蒜头玩啦）
-- 炉石传说：秋芥子#5235（之前是猎人快攻分奴，现在偶尔上去打打冒险模式）
+#### Steam:
+- [枪火重生](https://weibo.com/1928723543/JiFDsER2T)（抱着大腿通了关）
 - 雀魂：60494110 （很菜，初心三这样）
 - 彩虹六号：akiakutaji（非常菜）
+
+#### PC:
+
+- FF14 陆行鸟 暗影群岛：三次入坑又弃坑，最近又开始断断续续继续跑主线...
 - LOL:艾欧尼亚（不放id了战绩太菜了不好意思给人看）喜欢[S7S8时候的RNG](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUg2Vqp*lwVgaLvMHcqt6H*VZibdnf5nvo8.0OuenFebk8jUmGLIOdbXUAvjup*jfu2SdIqbH2lwKAxPd5kZ9kM!/r)，去上海看了[春季赛](https://weibo.com/1928723543/G5kxUEWGm?from=page_1005051928723543_profile&wvr=6&mod=weibotime&type=comment#_rnd1606401545421)，还有[粉丝采访](https://weibo.com/5756404150/G6zL7mrjr?from=page_1005055756404150_profile&wvr=6&mod=weibotime&type=comment)（在25秒左右）以及最近特别喜欢KDA女团！狐狸老本命了
-- 明日方舟：[秋芥子様#9557](http://m.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5jbo.hJ4F.SqQjbBpSqHcKdnml4dxe7hHQ*LrlQA7ydHtORZ.DvW0hN5tqMB.rCOpjlKu2lpZmOvE4KZrO6rOMY!/b&bo=BAXSAgQF0gIDCSw!&rf=viewer_4)
-- 少女前线 ios：[秋芥子様](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5gZ1dS75V3jv*1jFlonppiNtKCNGolfNHE1LG75f4FZFzHKD7J1wxo.T0gf*mBo4WANFCjZ7cP5cCcsjDNXQSf0!/b&ek=1&kp=1&pt=0&bo=*we*BP8HvwQBKQ4!&tl=3&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4)
+- 炉石传说：秋芥子#5235（之前是猎人快攻分奴，现在偶尔上去打打冒险模式）
+
+
+
+#### 手游:
+
+- 百闻牌：[秋秋芥子](https://weibo.com/1928723543/4674477629116636)（疫情期间最爱的游戏之一，每天疯狂上分，后来退坑了又回坑，打了两次[比赛](https://weibo.com/1928723543/4662840714070983)然后又退坑了QAQ）
+- PCR国服：[Akiko](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5uUyO79EleW56*nHziOXZhcHijh2*3RXlU9erLNQcS7PsGL8gCPRotkfscD1sFfw0mnxY5wiFo6g25hNWYjv5FU!/b&ek=1&kp=1&pt=0&bo=gwc4BAAAAAADZ*o!&tl=1&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4) （号给蒜头玩啦）
+- 明日方舟：[秋芥子様#9557](http://m.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5jbo.hJ4F.SqQjbBpSqHcKdnml4dxe7hHQ*LrlQA7ydHtORZ.DvW0hN5tqMB.rCOpjlKu2lpZmOvE4KZrO6rOMY!/b&bo=BAXSAgQF0gIDCSw!&rf=viewer_4)（退坑了）
+- 少女前线 ios：[秋芥子様](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5gZ1dS75V3jv*1jFlonppiNtKCNGolfNHE1LG75f4FZFzHKD7J1wxo.T0gf*mBo4WANFCjZ7cP5cCcsjDNXQSf0!/b&ek=1&kp=1&pt=0&bo=*we*BP8HvwQBKQ4!&tl=3&vuin=2940155947&tm=1606395600&sce=60-2-2&rf=viewer_4)（爱过，退坑了）
 - 奇迹暖暖 ios：[啊秋秋](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcZC0zUSOpfbljNei*raBBNh103Gt3iPqP3v3XTGRC8orRUfL.r0vPYcm0KyN8ivjwWnVsSE3irHcPklOWHx9qfk!/r)（贵8满级...以前连着玩了好几年）
 - 闪耀暖暖 台服：（施工ing）
+
+#### 其他游戏：
+- [蝶毒](https://weibo.com/1928723543/KFjGUfEmX) （不说什么了，懂的都懂！）
 
 ### 联系方式
 参考[朋友建议](http://a1.qpic.cn/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/ruAMsa53pVQWN7FLK88i5oaHnFlzBsu9dB8vonckrq0QCsKSNNbRxw.Mc4srbCvMMdIDeRvKLcEVOWSLfuaKxrAIuqpmxClYXXaBslHzEY4!/b&ek=1&kp=1&pt=0&bo=PwQGBD8EBgQBGT4!&tl=3&vuin=2940155947&tm=1606399200&sce=60-2-2&rf=viewer_4)留个联系方式，想联系我的可以发邮件到：1049054487@qq.com
