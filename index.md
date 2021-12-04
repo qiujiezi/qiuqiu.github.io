@@ -17,11 +17,11 @@ _更新日期：2021.11.19_
 
 微博：[@秋芥子](https://weibo.com/fighting51?topnav=1&wvr=6&topsug=1&is_all=1)
 
-Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （不常更新。以前更新过一些手账、少女前线、PCR、百闻牌、vlog和宅舞，可以的话想求个三连嘿嘿）
+Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （随缘更新。更新过一些手账、少女前线、PCR、百闻牌、vlog和宅舞，可以的话想求个三连嘿嘿）
 
-Twitter：[@Missa_www](https://twitter.com/Missa_www)（不常用）
+Twitter：[@Missa_www](https://twitter.com/Missa_www)
 
-Instagram：[@akiakutaji](https://www.instagram.com/akiakutaji/)（不常用）
+Instagram：[@akiakutaji](https://www.instagram.com/akiakutaji/)
 
 Steam: [414784280](https://steamcommunity.com/profiles/76561198375050008/)（欢迎加我好友，我好友好少噢）
 
