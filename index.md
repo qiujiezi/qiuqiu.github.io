@@ -1,6 +1,6 @@
 ## 欢迎来到偶的QQ空间（误）
 
-_更新日期：2021.11.19_
+_更新日期：2021.12.4_
 
 主要可能就是个人简介还有游戏账号啥的汇总嘿嘿，本来只是想搞个认真一点的微博置顶，但是微博置顶不能超链接也不能方便编辑，就想着搞个网页好了，编辑起来也方便！
 
@@ -11,7 +11,7 @@ _更新日期：2021.11.19_
 
 ### 关于我
 
-一个不会讲武汉话的武汉土著（丢人）。目前是家里蹲，2022年春天会[去新加坡读博](https://weibo.com/1928723543/KCPXecWMO)。看上去像个二次元，其实连cos都不出的（倒是拍过一次[浴衣](http://b223.photo.store.qq.com/psb?/V10Ku9CI4aQd30/4gS9EMfV85q0J.*z7CADvc9q1DtmBkOflFv632CCISQ!/b/dN8AAAAAAAAA&bo=QAZgCYARQBoRF8Q!&rf=viewer_4)）。[lo](http://r.photo.store.qq.com/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcRXz84g.hqbCLVQaCN1rpayIWPj8VDDXVPTtBe590fJDUFIJ*3rasInv4vWLQAoJV74AHIsMvcXnSGzLumrFdfs!/r)和[jk制服](http://photogz.photo.store.qq.com/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcQzyJj*Td3vjqTD1yaghLs*1d6MSXK8CGbv8Di2lbfJRiLzdPd8*xOn*JJPdCEdGI7W*NIfqGNDRKB0JQkSwzTI!/b&bo=QAYcC3AIAA8BSUg!&rf=viewer_4)也买的不算很多了，反正日常就瞎穿。喜欢玩游戏，偶尔出去玩会化妆臭美[自拍](http://m.qpic.cn/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcW*rJ06k0MBsTT7hcZOZ2b6zi4kRhmikRa1GQ1BhDxQvBLqk*5IZhZZ3qQtfRT2MtqVIz6bR94wzQx0Jy2IXhyU!/b&bo=AAb.BQAG*gUBWX4!&rf=viewer_4)。平时是个艰苦的[读书人](http://a1.qpic.cn/psc?/V10Ku9CI3pAZio/ruAMsa53pVQWN7FLK88i5morMdIAweeyi9t8ENdtdWxRiSEM0hGXHoa80.3hfbL6vJeqM3X1prO45mUNJ57G.Psagqu1lLWjS2LahCxzlNE!/b&ek=1&kp=1&pt=0&bo=2gR8BNoEfAQRECc!&tl=3&vuin=1049054487&tm=1606399200&sce=60-4-3&rf=viewer_311)，方向是smart cities和spatial data analysis这种，最近做的比较多的研究是用机器学习做travel choice analysis。
+一个不会讲武汉话的武汉土著（丢人）。目前是家里蹲，2022年春天会[去新加坡读博](https://weibo.com/1928723543/KCPXecWMO)。看上去像个二次元，其实连cos都不出的（倒是拍过一次[浴衣](https://weibo.com/1928723543/Gs4ARcIgk)）。[lo](http://r.photo.store.qq.com/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcRXz84g.hqbCLVQaCN1rpayIWPj8VDDXVPTtBe590fJDUFIJ*3rasInv4vWLQAoJV74AHIsMvcXnSGzLumrFdfs!/r)和[jk制服](http://photogz.photo.store.qq.com/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcQzyJj*Td3vjqTD1yaghLs*1d6MSXK8CGbv8Di2lbfJRiLzdPd8*xOn*JJPdCEdGI7W*NIfqGNDRKB0JQkSwzTI!/b&bo=QAYcC3AIAA8BSUg!&rf=viewer_4)也买的不算很多了，反正日常就瞎穿。喜欢玩游戏，偶尔出去玩会化妆臭美[自拍](http://m.qpic.cn/psc?/V10Ku9CI4aQd30/45NBuzDIW489QBoVep5mcW*rJ06k0MBsTT7hcZOZ2b6zi4kRhmikRa1GQ1BhDxQvBLqk*5IZhZZ3qQtfRT2MtqVIz6bR94wzQx0Jy2IXhyU!/b&bo=AAb.BQAG*gUBWX4!&rf=viewer_4)。平时是个艰苦的[读书人](http://a1.qpic.cn/psc?/V10Ku9CI3pAZio/ruAMsa53pVQWN7FLK88i5morMdIAweeyi9t8ENdtdWxRiSEM0hGXHoa80.3hfbL6vJeqM3X1prO45mUNJ57G.Psagqu1lLWjS2LahCxzlNE!/b&ek=1&kp=1&pt=0&bo=2gR8BNoEfAQRECc!&tl=3&vuin=1049054487&tm=1606399200&sce=60-4-3&rf=viewer_311)，方向是smart cities和spatial data analysis这种，最近做的比较多的研究是用机器学习做travel choice analysis。
 
 ### 一些账号什么的
 
@@ -36,7 +36,7 @@ Pixiv：[12547188](https://www.pixiv.net/users/12547188)（画画真的是纯纯
 我玩游戏很杂，而且都是周期性的，一周沉迷一个这样，且都挺菜的（
 
 #### Switch：
-- [塞尔达](https://weibo.com/1928723543/4702725642127219) （已通关+全神庙解锁）
+- [塞尔达](https://weibo.com/1928723543/L1rlHevxk) （已通关+全神庙解锁）
 - [虔诚之花的晚钟](https://weibo.com/1928723543/L4wCKlVGb)（Playing。Orlok我的宝贝5555！）
 - [项圈X恶意](https://weibo.com/1928723543/L4atpoqwV)（Playing）
 - [符文工房4](https://weibo.com/1928723543/JwdnIe1xr)（好像是打到第三章然后弃了...）
@@ -48,7 +48,7 @@ Pixiv：[12547188](https://www.pixiv.net/users/12547188)（画画真的是纯纯
 
 #### PC:
 
-- FF14 陆行鸟 暗影群岛：三次入坑又弃坑，最近又开始断断续续继续跑主线...
+- FF14: 陆行鸟 暗影群岛（三次入坑又弃坑，最近又开始断断续续继续跑主线...）
 - LOL:艾欧尼亚（不放id了战绩太菜了不好意思给人看）喜欢[S7S8时候的RNG](http://r.photo.store.qq.com/psc?/V522TjtD4cRIdR3KTalg04Wacw1gcfl8/45NBuzDIW489QBoVep5mcUg2Vqp*lwVgaLvMHcqt6H*VZibdnf5nvo8.0OuenFebk8jUmGLIOdbXUAvjup*jfu2SdIqbH2lwKAxPd5kZ9kM!/r)，去上海看了[春季赛](https://weibo.com/1928723543/G5kxUEWGm?from=page_1005051928723543_profile&wvr=6&mod=weibotime&type=comment#_rnd1606401545421)，还有[粉丝采访](https://weibo.com/5756404150/G6zL7mrjr?from=page_1005055756404150_profile&wvr=6&mod=weibotime&type=comment)（在25秒左右）以及最近特别喜欢KDA女团！狐狸老本命了
 - 炉石传说：秋芥子#5235（之前是猎人快攻分奴，现在偶尔上去打打冒险模式）
 
